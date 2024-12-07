@@ -1,2 +1,0 @@
-# newyieldler
-INFINITE YIELD COPY
